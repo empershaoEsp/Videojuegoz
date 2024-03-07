@@ -1,1 +1,2 @@
 # Videojuegoz
+los fnts son un timo. Las criptomonedas se basan en la especulacion. Una obra de arte, no funjible, una moneda de euro, funjible.  el minero es el que tiene computadoras en su casa, va a intentar resolver un puzzle matematico y si es el primero que las reuselve sera publicas las transacciones. Bitcoin son funjible. El valor de una criptomoneda no es estable con el tiempo por lo tanto no puede ser incrementada de moneda correcta.
